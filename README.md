@@ -24,4 +24,6 @@ the imagination or the things we can not see right now are not all the right but
 
 if someone admit their ivoilence then the court will slightly reduce the punishment for him。is it unfair？ the judgement should be made by the law that defines which behavious will have which level punishment。why reduce when he admit。
 
-beacuse it 
+beacuse we dont need to waste human resource to find evidence to decide his behaviours
+
+if the a rich man who hires many layers who are the best ones in the country. and the court will also find the best ones to find the evidence. should the rich man get the punishment slightly strong????? 
