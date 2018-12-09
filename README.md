@@ -20,3 +20,8 @@ we can not ay that we should give any other countries a bomb to let them increas
 
 the imagination or the things we can not see right now are not all the right but all the important to be thinked about.
 
+2. fair of law efficency
+
+if someone admit their ivoilence then the court will slightly reduce the punishment for him。is it unfair？ the judgement should be made by the law that defines which behavious will have which level punishment。why reduce when he admit。
+
+beacuse it 
